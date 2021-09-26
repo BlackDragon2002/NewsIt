@@ -1,7 +1,11 @@
 HEY GUYS 
 I HAVE MADE NEWS APP
 
-https://user-images.githubusercontent.com/78276034/132955624-6dd4c686-e074-4c01-b950-872eb1c0375c.mp4
+
+
+https://user-images.githubusercontent.com/78276034/134820184-8ffe1630-779d-4785-aca5-c91b61462985.mp4
+
+
 
 ![IMG_20210911_214948](https://user-images.githubusercontent.com/78276034/132955627-c9c46475-5c28-43c8-8b94-93ba8fbe0cdb.jpg)
 ![IMG_20210911_215032](https://user-images.githubusercontent.com/78276034/132955628-63e50980-d1ac-4207-9548-218cd60f6c8e.jpg)
